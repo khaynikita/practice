@@ -1,0 +1,1 @@
+# inventorypos.github.io
